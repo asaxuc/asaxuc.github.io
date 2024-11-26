@@ -24,5 +24,5 @@ What's new
 
 Others
 ------
-- I'm immersed in painting and post-modern aesthetics. Feel free to email me for academical discussions & making friends as a same painting enthusiast.
-- PFP by twitter@0wanwing, one of my most appreciated artists.
+- I'm immersed in painting, musical opera and subcultures (like post-modern aesthetics). Feel free to email me for academical discussions & making friends as a same painting enthusiast.
+- PFP by twitter@0wanwing.
