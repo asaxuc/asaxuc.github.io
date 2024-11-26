@@ -21,8 +21,8 @@ Education Background
 What's new
 ======
 - **2024.12** My first-authored paper named is accepted to 
-- **2024.08** I start my career of a fanart illustrator in Lofter and Xiaohongshu.
 
 Others
 ------
-
+- I'm immersed in painting and post-modern aesthetics. Feel free to email me for academical discussions & making friends as a same painting enthusiast.
+- PFP by twitter@0wanwing, one of my most appreciated artists.
