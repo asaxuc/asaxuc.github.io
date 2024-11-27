@@ -24,5 +24,5 @@ What's new
 
 Others
 ======
-- I'm fond of painting and subcultures (like post-modern aesthetics). Feel free to email me for academical discussions & making friends as a same painting enthusiast.
-- pfp by twitter@0wanwing.
+- I'm fond of painting and subcultures. Feel free to email me for academical discussions & making friends as a same painting enthusiast.
+- pfp by twitter@0waxwing.
