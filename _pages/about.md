@@ -7,7 +7,7 @@ redirect_from:
   - /about.html
 ---
 
-I am a first-year graduate of USTC. Making some tough innovations.
+I am a first-year graduate of USTC. Making innovations.
 
 Research Interests
 ======
@@ -24,5 +24,5 @@ What's new
 
 Others
 ======
-- I'm fond of painting and subcultures. Feel free to email me for academical discussions & making friends as a same painting enthusiast.
+- I'm immersed in painting. Feel free to email me for academical discussions & making friends as a same painting enthusiast.
 - pfp by twitter@0waxwing.
