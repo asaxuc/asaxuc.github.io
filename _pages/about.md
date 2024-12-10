@@ -20,7 +20,7 @@ Education Background
 
 What's new
 ======
-- **2024.12** My first-authored paper named is accepted to 
+- **2024.12** My first-authored paper named Multi-Label Self-Knowledge Distillation is accepted to AAAI25.
 
 Others
 ======
