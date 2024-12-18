@@ -24,5 +24,5 @@ What's new
 
 Others
 ======
-- I'm immersed in painting. Feel free to email me for academical discussions & making friends as a same painting enthusiast.
+- I'm a part-time illustrator especially skilled in sketching and celluloid. See some of my fanarts on [Pixiv](https://www.pixiv.net/users/83623536)
 - pfp by twitter@0waxwing.
