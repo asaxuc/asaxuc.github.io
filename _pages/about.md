@@ -24,4 +24,4 @@ What's new
 
 Others
 ======
-- I'm a part-time illustrator especially skilled at sketching and celluloid. See some of my fanarts on [Pixiv](https://www.pixiv.net/users/83623536).
+- I'm a part-time illustrator especially skilled at sketching and celluloid. You can view some of my artworks on [Pixiv](https://www.pixiv.net/users/83623536).
